@@ -1,5 +1,5 @@
 uhh meow  
-![its me](sona.png)
+![its me](sona.png)  
 oh hey it works uhhh  
 hi im cheren im an aroace plural nyanbinary catthing my pronouns are she/they/he  
 i occasionally do programming and coding stuff and get into arguments with end users that have never peeked behind the curtain  
